@@ -1,2 +1,0 @@
-# Entrümpelung/ Haushaltauflösung
-Entrümpelung/ Haushaltauflösung
