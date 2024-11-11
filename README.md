@@ -1,2 +1,2 @@
-# Entr-mpelung-Haushaltaufl-sung
+# Entrümpelung/ Haushaltauflösung
 Entrümpelung/ Haushaltauflösung
